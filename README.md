@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...AWS
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...LinkedIn
-- 😄 Pronouns: ...He/Him
+- 😄 Pronouns: ...She/Her
 - ⚡ Fun fact: ...I Am Half Finish
 -->
